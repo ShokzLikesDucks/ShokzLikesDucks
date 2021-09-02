@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ShokzLikesDucks
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Shokznm2020@gmail.com
